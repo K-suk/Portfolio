@@ -1,0 +1,1 @@
+This is Portfolio of Kosuke Kumamoto, you can learn about me. And if you get interest about me, please contact me!
